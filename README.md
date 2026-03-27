@@ -4,4 +4,4 @@
 
 •💻**HTML** ham **CSS** úyrenip atirman
 
-•💻**HTML** ham **CSS** te tapsirmalsr islep atirman
+•💻**HTML** ham **CSS** te tapsirmalar islep atirman
