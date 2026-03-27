@@ -1,2 +1,5 @@
 # Hello my name is Nargiza👋
-💻**HTML** ham **CSS** úyrenip atirman
+
+😊About mee:
+•💻**HTML** ham **CSS** úyrenip atirman
+•💻**HTML** ham **CSS** te tapsirmalsr islep atirman
